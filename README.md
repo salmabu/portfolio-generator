@@ -53,4 +53,4 @@ MIT License
 
 > Contact
 
-For questions or suggestions, feel free to email: salmabud814@gmail.com
+For questions or suggestions, feel free to email: saloom8143@gmail.com
